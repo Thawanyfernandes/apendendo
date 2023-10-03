@@ -1,0 +1,1 @@
+eu sou péssima em terminal 
